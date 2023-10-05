@@ -2,6 +2,7 @@
 
 ### Education
 industria physics, Bsc
+
 Information Technology, Centria University Of APllied Sciences
 
 ### Work Exprience
